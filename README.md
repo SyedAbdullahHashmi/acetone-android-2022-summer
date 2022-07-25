@@ -1,1 +1,0 @@
-# acetone-android-2022-summer
